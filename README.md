@@ -44,3 +44,9 @@ You should have received a copy Of the GNU General Public License along with thi
 
 Leaker - !Akshai YT#2742
 Discord - https://discord.gg/JqaBj5GmFM
+
+
+
+![99bff027a64fbe19684ed2dfda73a5f8](https://user-images.githubusercontent.com/110328798/183482354-96c9420f-77d9-4507-a199-8c77236670e9.jpg)
+![9af5dc4903d6604b2907c87eb15148eb](https://user-images.githubusercontent.com/110328798/183482360-d19e241a-9c2a-447e-aaa4-c03a1a524a8f.jpg)
+
